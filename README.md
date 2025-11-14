@@ -1,4 +1,4 @@
-👨‍💻 Portfolio - Yousef Reshmi Damghani
+👨‍💻 Portfolio - Yousef Damghani
 <div align="center">
 Show Image
 Show Image
